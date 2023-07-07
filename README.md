@@ -44,13 +44,13 @@ Stalin 'planned to send a million troops to stop Hitler if Britain and France ag
 
 “The operation resulted in 260 million bombs being dropped on Laos, making Laos "the most heavily bombed nation in history". https://en.m.wikipedia.org/wiki/Operation_Barrel_Roll
 
-C.I.A. SAYS SOVIET CAN ALMOST DO WITHOUT IMPORTS (Jan. 9, 1983) “The Central Intelligence Agency, in a study of the Soviet economy, concludes that the Soviet Union's ability to live without imports is much greater than that of most, possibly all, other industrialized economies. The report, delivered to the Joint Economic Committee of Congress on Dec. 1 by Henry Rowen, chairman of the C.I.A.'s National Intelligence Council, seems to support the argument that American trade embargoes against the Soviet Union have only limited effect.” https://www.nytimes.com/1983/01/09/world/cia-says-soviet-can-almost-do-without-imports.html#:~:text=He%20said%20the%20average%20Soviet,and%20meat%20and%20less%20sugar.
-
-"In 1956 the USSR reduced the workweek for a l l workers and employees from 48 to 46 hours and announced plans for a further gradual reduction to 41 hours by the end of 1960. After lagging badly during 1957-58,
+(FROM THE CIA) "In 1956 the USSR reduced the workweek for a l l workers and employees from 48 to 46 hours and announced plans for a further gradual reduction to 41 hours by the end of 1960. After lagging badly during 1957-58,
 the program was sharply accelerated in 1959-60, and by t h e end o f 1960 all workers and employees had been transferred to the shorter workweek.
 The reduction of the workweek was accomplished largely without lowering average weekly earnings, without underfulfillment of production plans, and with substantial increases In output per man and per man-hour. In addition, higher "technically based" work norms have been established, the wage and bonus structure has been rationalized, and progressive piece rates have been deemphasized. The Seven Year Plan (1959-65), published in February 1959, specified that an additional hour was to
 be cut from the workweek in 1962 and that the s h i f tt o a 35-hour work- week was to begin in 1964 and to be completed in 1968."
 https://www.cia.gov/readingroom/docs/CIA-RDP64B00346R000100200025-6.pdf
+
+C.I.A. SAYS SOVIET CAN ALMOST DO WITHOUT IMPORTS (Jan. 9, 1983) “The Central Intelligence Agency, in a study of the Soviet economy, concludes that the Soviet Union's ability to live without imports is much greater than that of most, possibly all, other industrialized economies. The report, delivered to the Joint Economic Committee of Congress on Dec. 1 by Henry Rowen, chairman of the C.I.A.'s National Intelligence Council, seems to support the argument that American trade embargoes against the Soviet Union have only limited effect.” https://www.nytimes.com/1983/01/09/world/cia-says-soviet-can-almost-do-without-imports.html#:~:text=He%20said%20the%20average%20Soviet,and%20meat%20and%20less%20sugar.
 
 REUTERS (8 JANUARY 1983) “American and Soviet citizens eat about the same amount of food each day but the Soviet diet may be more nutritious. According to a CIA report released today both nationalities may be eating •too much for good health.” https://www.cia.gov/readingroom/docs/CIA-RDP85M00363R000601440024-5.pdf
 
