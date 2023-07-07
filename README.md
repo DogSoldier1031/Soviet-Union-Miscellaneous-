@@ -1,5 +1,18 @@
 Soviet Union (Miscellaneous)
 
+Writings of Vladimir Lenin
+https://www.marxists.org/archive/lenin/works/index.htm
+
+Imperialism, the Highest Stage of Capitalism[1]
+https://www.marxists.org/archive/lenin/works/1916/imp-hsc/
+
+Writings of Alexandra Kollontai
+https://www.marxists.org/archive/kollonta/index.htm
+
+Life expectancy (from birth) in Russia, from 1845 to 2020*
+https://www.statista.com/statistics/1041395/life-expectancy-russia-all-time/
+
+Allied intervention in the Russian Civil War
 https://en.m.wikipedia.org/wiki/Allied_intervention_in_the_Russian_Civil_War
 
 (FROM THE CIA) “Even In Stalin's time there was collective leadership. The Western idea of a dictator within the Communist setup is exaggerated. Misunderstandings on that subject are caused by lack of comprehension of the real nature and organi- zation of the Communist power structure. Stalin, although holding wide powers, was merely the captain of a team and I t seems obvious that Khrushchev will be the new captain. However, 1t does not appear that any of the present leaders will rise to the stature of Lenin and Stalin,so that it will be safer to assume that developments in Moscow will be along the lines of what is called collective leadership, unless Western policies force the Soviets to streamline their power organization. The present situation is the most favorable from the point of view of upsetting the Communist dictatorship since the death of Stalin:” https://www.cia.gov/readingroom/docs/CIA-RDP80-00810A006000360009-0.pdf
