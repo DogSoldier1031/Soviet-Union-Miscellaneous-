@@ -32,6 +32,33 @@ https://en.m.wikipedia.org/wiki/Soviet_famine_of_1930–1933
 
 In Search of a SOVIET HOLOCAUST A 55-Year-Old Famine Feeds the Right By Jeff Coplon Originally published in the Village Voice (New York City), January 12, 1988. https://msuweb.montclair.edu/~furrg/vv.html
 
+The Truth about the Soviet Gulag – Surprisingly Revealed by the CIA
+“Should all gulag inmates be considered innocent victims of Red repression? Contrary to what we have been led to believe, those arrested for political crimes ('counterrevolutionary offenses') numbered from 12 to 33 percent of the prison population, varying from year to year. The vast majority of inmates were charged with nonpolitical offenses: murder, assault, theft, banditry, smuggling, swindling, and other violations punishable in any society."
+Thus, according to the CIA, approximately two million people were sent to the Gulag in the 1930s, whereas according to declassified Soviet archives, 2,369,220 up until 1954. When compared to the population of the USSR at the time, as well as the statistics of a country like the United States, the Gulag percent population in the USSR throughout its history was lower than that of the United States today or since the 1990s. In fact, based on Sousa's (1998)research, there was a larger percentage of prisoners (relative to the whole population) in the US, than there ever was in the USSR:
+“In a rather small news item appearing in the newspapers of August 1997, the FLT-AP news agency reported that in the US there had never previously been so many people in the prison system as the 5.5 million held in 1996. This represents an increase of 200,000 people since 1995 and means that the number of criminals in the US equals 2.8% of the adult population. These data are available to all those who are part of the North American department of justice…. The number of convicts in the US today is 3 million higher than the maximum number ever held in the Soviet Union! In the Soviet Union, there was a maximum of 2.4% of the adult population in prison for their crimes – in the US the figure is 2.8% and rising! According to a press release put out by the US department of justice on 18 January 1998, the number of convicts in the US in 1997 rose by 96,100.”
+https://www.greanvillepost.com/2018/10/09/the-truth-about-the-soviet-gulag-surprisingly-revealed-by-the-cia/
+
+In answer to your inquiry :
+National and racial chauvinism is a vestige of the misanthropic customs characteristic of the period of cannibalism. Anti-semitism, as an extreme form of racial chauvinism, is the most dangerous vestige of cannibalism.
+Anti-semitism is of advantage to the exploiters as a lightning conductor that deflects the blows aimed by the working people at capitalism. Anti-semitism is dangerous for the working people as being a false path that leads them off the right road and lands them in the jungle. Hence Communists, as consistent internationalists, cannot but be irreconcilable, sworn enemies of anti-semitism.
+In the U.S.S.R. anti-semitism is punishable with the utmost severity of the law as a phenomenon deeply hostile to the Soviet system. Under U.S.S.R. law active anti-semites are liable to the death penalty.
+J. Stalin  January 12, 1931
+https://www.marxists.org/reference/archive/stalin/works/1931/01/12.htm
+
+Dr. Diana Dumitru: No direct evidence yet of Stalin's planned deportation of the Jews
+“How likely is the theory about the planned deportation of the Jews?   
+So far there is no direct evidence; we see it as a rumor and a reflection of the public mood. Jews were paralyzed with fear; that’s a fact. But stories about someone spotting train cars standing on a siding are not documents.
+As for moods, they dovetail perfectly with the logic of that era. Literally that same year, after Stalin’s death, [Lavrenty] Beria began to promote the policy of korenizatsiia [indigenization] in Latvia in the style of the 1920s. An order was given to replace Russian Latvians in leadership positions, and rumors instantly began to spread about the upcoming deportation of all Russians from Latvia! The Soviet people perceived reality this way: They knew that deportation was one of the methods of collective punishment, so they were ready for it.
+So, the deportation of Jews to the Far East is one of several possible scenarios; nevertheless, it has not been confirmed. But time is unpredictable. For a long time, the Soviet Union disavowed both the Molotov-Ribbentrop Pact and the Katyn tragedy, but in the end the relevant documents were found…”
+https://ukrainianjewishencounter.org/en/dr-diana-dumitru-no-direct-evidence-yet-of-stalins-planned-deportation-of-the-jews/
+
+“Why did Stalin vote for a Jewish state?”
+https://m.jpost.com/opinion/why-did-stalin-vote-for-a-jewish-state-649917
+
+My Friend, Stalin’s Daughter
+https://www.newyorker.com/magazine/2014/03/31/my-friend-stalins-daughter
+
+
 https://en.m.wikipedia.org/wiki/Holodomor_in_modern_politics#Recognition
 
 https://en.m.wikipedia.org/wiki/Holodomor_genocide_question
