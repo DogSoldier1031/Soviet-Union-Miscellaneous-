@@ -32,6 +32,9 @@ https://en.m.wikipedia.org/wiki/Soviet_famine_of_1930–1933
 
 In Search of a SOVIET HOLOCAUST A 55-Year-Old Famine Feeds the Right By Jeff Coplon Originally published in the Village Voice (New York City), January 12, 1988. https://msuweb.montclair.edu/~furrg/vv.html
 
+https://en.m.wikipedia.org/wiki/Holodomor_in_modern_politics#Recognition
+
+https://en.m.wikipedia.org/wiki/Holodomor_genocide_question
 The Truth about the Soviet Gulag – Surprisingly Revealed by the CIA
 “Should all gulag inmates be considered innocent victims of Red repression? Contrary to what we have been led to believe, those arrested for political crimes ('counterrevolutionary offenses') numbered from 12 to 33 percent of the prison population, varying from year to year. The vast majority of inmates were charged with nonpolitical offenses: murder, assault, theft, banditry, smuggling, swindling, and other violations punishable in any society."
 Thus, according to the CIA, approximately two million people were sent to the Gulag in the 1930s, whereas according to declassified Soviet archives, 2,369,220 up until 1954. When compared to the population of the USSR at the time, as well as the statistics of a country like the United States, the Gulag percent population in the USSR throughout its history was lower than that of the United States today or since the 1990s. In fact, based on Sousa's (1998)research, there was a larger percentage of prisoners (relative to the whole population) in the US, than there ever was in the USSR:
@@ -57,11 +60,6 @@ https://m.jpost.com/opinion/why-did-stalin-vote-for-a-jewish-state-649917
 
 My Friend, Stalin’s Daughter
 https://www.newyorker.com/magazine/2014/03/31/my-friend-stalins-daughter
-
-
-https://en.m.wikipedia.org/wiki/Holodomor_in_modern_politics#Recognition
-
-https://en.m.wikipedia.org/wiki/Holodomor_genocide_question
 
 The Soviets were one of the later European nations to sign a treaty with Nazi Germany: Four-Power Pact (July 1933) German–Polish declaration of non-aggression (January 1934) Anglo-German Naval Agreement (June 1935) Juliabkommen (July 1936) German-Romanian Treaty for the Development of Economic Relations between the Two Countries (March 1939) German–Estonian Non-Aggression Pact (June 7, 1939) German–Latvian Non-Aggression Pact (June 7, 1939) Molotov–Ribbentrop Pact (August 1939)
 
