@@ -35,6 +35,7 @@ In Search of a SOVIET HOLOCAUST A 55-Year-Old Famine Feeds the Right By Jeff Cop
 https://en.m.wikipedia.org/wiki/Holodomor_in_modern_politics#Recognition
 
 https://en.m.wikipedia.org/wiki/Holodomor_genocide_question
+
 The Truth about the Soviet Gulag – Surprisingly Revealed by the CIA
 “Should all gulag inmates be considered innocent victims of Red repression? Contrary to what we have been led to believe, those arrested for political crimes ('counterrevolutionary offenses') numbered from 12 to 33 percent of the prison population, varying from year to year. The vast majority of inmates were charged with nonpolitical offenses: murder, assault, theft, banditry, smuggling, swindling, and other violations punishable in any society."
 Thus, according to the CIA, approximately two million people were sent to the Gulag in the 1930s, whereas according to declassified Soviet archives, 2,369,220 up until 1954. When compared to the population of the USSR at the time, as well as the statistics of a country like the United States, the Gulag percent population in the USSR throughout its history was lower than that of the United States today or since the 1990s. In fact, based on Sousa's (1998)research, there was a larger percentage of prisoners (relative to the whole population) in the US, than there ever was in the USSR:
