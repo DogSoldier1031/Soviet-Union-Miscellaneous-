@@ -74,6 +74,11 @@ Generalplan OST
 
 https://en.m.wikipedia.org/wiki/Generalplan_Ost
 
+“How about strategic significance? Here’s the clincher. Let’s be blunt: the German army lost World War II on the Eastern Front. For most of the war, 75-80 percent of the Wehrmacht had to be deployed in the East, a preponderance dictated by the sheer size of the front, and 80 percent of German war dead perished there: about four million of the five million German soldiers killed in World War II.
+Americans and British sometimes take umbrage at such talk, but they shouldn’t. Roosevelt and Churchill both knew who was killing the most Germans, and their wartime policies (like Lend-Lease) were designed to help the Soviets do just that.”
+
+https://www.nationalww2museum.org/war/articles/operation-barbarossa
+
 “Historical ties between Russia and Africa Russia’s engagement with African countries is not new. Backed by its ideological commitment to decolonisation, Russia’s communist predecessor, the Soviet Union, established partnerships with African countries soon after they claimed independence. Its involvement was driven by a mixture of ideological commitment, pragmatic economic interests, and the need to build alliances in the Cold War.” https://www.greeneuropeanjournal.eu/why-russia-finds-friends-in-africa/
 
 “How the Soviet Union helped Nelson Mandela No discussion about South Africa and Nelson Mandela’s struggle against the tyranny of apartheid can be complete without mentioning the role of the Soviet Union” https://www.telegraph.co.uk/sponsored/rbth/opinion/10539128/soviet-union-nelson-mandela.html
