@@ -70,6 +70,10 @@ Stalin 'planned to send a million troops to stop Hitler if Britain and France ag
 
 “The Soviet Union is estimated to have suffered the highest number of WWII casualties. As many as 27 million Soviets lost their lives, with as many as 11.4 million military deaths joined by up to 10 million civilian deaths due to military activity and an additional 8 million to 9 million deaths due to famine and disease. Those totals do not include the more than 14 million Soviet soldiers who were wounded during the war. Among the Soviet Union's 15 republics, Russia withstood the highest number of casualties, with 6,750,000 military deaths and 7,200,000 civilian deaths. Ukraine tallied the second-highest casualties, with 1,650,000 military deaths and 5,200,000 civilian deaths.” https://worldpopulationreview.com/country-rankings/world-war-two-casualties-by-country#
 
+Generalplan OST 
+
+https://en.m.wikipedia.org/wiki/Generalplan_Ost
+
 “Historical ties between Russia and Africa Russia’s engagement with African countries is not new. Backed by its ideological commitment to decolonisation, Russia’s communist predecessor, the Soviet Union, established partnerships with African countries soon after they claimed independence. Its involvement was driven by a mixture of ideological commitment, pragmatic economic interests, and the need to build alliances in the Cold War.” https://www.greeneuropeanjournal.eu/why-russia-finds-friends-in-africa/
 
 “How the Soviet Union helped Nelson Mandela No discussion about South Africa and Nelson Mandela’s struggle against the tyranny of apartheid can be complete without mentioning the role of the Soviet Union” https://www.telegraph.co.uk/sponsored/rbth/opinion/10539128/soviet-union-nelson-mandela.html
