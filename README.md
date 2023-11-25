@@ -6,6 +6,9 @@ https://www.marxists.org/archive/lenin/works/index.htm
 Imperialism, the Highest Stage of Capitalism[1]
 https://www.marxists.org/archive/lenin/works/1916/imp-hsc/
 
+The State and Revolution
+https://www.marxists.org/archive/lenin/works/1917/staterev/
+
 Writings of Alexandra Kollontai
 https://www.marxists.org/archive/kollonta/index.htm
 
