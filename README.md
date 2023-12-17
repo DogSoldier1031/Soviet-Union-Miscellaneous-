@@ -110,6 +110,10 @@ REUTERS (8 JANUARY 1983) “American and Soviet citizens eat about the same amou
 
 The Human Face of Russia (1984) - society and everyday life in 1980s USSR https://m.youtube.com/watch?v=Hlb-HwxUxSU
 
+Index to Perestroika: a Marxist Critique [1990]
+
+https://www.marxists.org/history/etol/writers/marcy/perestroika/index.htm
+
 1991 Soviet Union referendum https://en.m.wikipedia.org/wiki/1991_Soviet_Union_referendum
 
 1991 Ukrainian sovereignty referendum https://en.m.wikipedia.org/wiki/1991_Ukrainian_sovereignty_referendum
