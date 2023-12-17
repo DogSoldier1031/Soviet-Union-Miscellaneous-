@@ -140,3 +140,21 @@ https://www.thelancet.com/journals/lanpub/article/PIIS2468-26671730072-5/fulltex
 Footnote
 1 Female life expectancy followed a similar but less extreme pattern, falling from 74.2 to 71.1 years from 1991 to 1994 (Appendix Figure 1).”
 https://link.springer.com/article/10.1057/s41294-021-00169-w#
+
+"Vol. 23 No. 15 · 9 August 2001 Yeltsin has gone mad R.W. Davies"
+
+https://www.lrb.co.uk/the-paper/v23/n15/r.w.-davies/yeltsin-has-gone-mad
+
+1995 Russian legislative election
+
+https://en.m.wikipedia.org/wiki/1995_Russian_legislative_election
+
+1999 Russian legislative election
+
+https://en.m.wikipedia.org/wiki/1999_Russian_legislative_election
+
+1994 Ukrainian parliamentary election
+
+https://en.m.wikipedia.org/wiki/1994_Ukrainian_parliamentary_election
+
+https://en.m.wikipedia.org/wiki/1998_Ukrainian_parliamentary_election
