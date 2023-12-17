@@ -114,6 +114,10 @@ Index to Perestroika: a Marxist Critique [1990]
 
 https://www.marxists.org/history/etol/writers/marcy/perestroika/index.htm
 
+"Socialism Betrayed"
+
+https://valleysunderground.files.wordpress.com/2020/05/socialism-betrayed.pdf
+
 1991 Soviet Union referendum https://en.m.wikipedia.org/wiki/1991_Soviet_Union_referendum
 
 1991 Ukrainian sovereignty referendum https://en.m.wikipedia.org/wiki/1991_Ukrainian_sovereignty_referendum
