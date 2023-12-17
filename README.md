@@ -114,6 +114,12 @@ The Human Face of Russia (1984) - society and everyday life in 1980s USSR https:
 
 1991 Ukrainian sovereignty referendum https://en.m.wikipedia.org/wiki/1991_Ukrainian_sovereignty_referendum
 
+POST-SOVIET
+
+"Yeltsin Dissolves Parliament; Defiant Members Impeach Him in Showdown : Russia: President’s decree plunges nation into deepest crisis since 1991 coup attempt. The armed forces pledge neutrality, and the streets of Moscow remain calm." BY MICHAEL A. HILTZIK  SEPT. 22, 1993 12 AM PT"
+
+https://www.latimes.com/archives/la-xpm-1993-09-22-mn-37870-story.html
+
 1993 Russian constitutional crisis https://en.m.wikipedia.org/wiki/1993_Russian_constitutional_crisis
 
 “Yeltsin Shelled Russian Parliament 25 Years Ago, U.S. Praised “Superb Handling’” https://nsarchive.gwu.edu/briefing-book/russia-programs/2018-10-04/yeltsin-shelled-russian-parliament-25-years-ago-us-praised-superb-handling
