@@ -157,4 +157,6 @@ https://en.m.wikipedia.org/wiki/1999_Russian_legislative_election
 
 https://en.m.wikipedia.org/wiki/1994_Ukrainian_parliamentary_election
 
+1998 Ukrainian parliamentary election
+
 https://en.m.wikipedia.org/wiki/1998_Ukrainian_parliamentary_election
