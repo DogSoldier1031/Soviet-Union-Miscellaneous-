@@ -108,6 +108,10 @@ C.I.A. SAYS SOVIET CAN ALMOST DO WITHOUT IMPORTS (Jan. 9, 1983) “The Central I
 
 REUTERS (8 JANUARY 1983) “American and Soviet citizens eat about the same amount of food each day but the Soviet diet may be more nutritious. According to a CIA report released today both nationalities may be eating •too much for good health.” https://www.cia.gov/readingroom/docs/CIA-RDP85M00363R000601440024-5.pdf
 
+"The eradication of illiteracy in Russia has a lengthy history but a systematic literacy campaign began only after the revolution of 1917. The literacy problem was considered to be solved two decades later. Success was due to the following factors: (1) illiterate people were eager to learn; (2) the eradication of illiteracy and preparation for general education were carried on simultaneously; (3) radical social and economic changes were taking place, the campaign had a nationwide character; and (4) teachers were trained to teach reading and writing to all nationalities. In the early 18th century, Peter the Great introduced the Cyrillic alphabet and opened the first public schools. In the second half of the 19th century, the peasants' school system expanded and distance education appeared. However, the demand for education could not be satisfied because the tsarist government deliberately restrained cultural development. In the beginning of the 20th century, only about 22 percent of Russians were literate. In 1918-20, schools increased by 13,000 and 2 million more students enrolled. It was extremely urgent to eradicate technical illiteracy. Four-year factory and workshop schools were started in 1921. By 1939, the USSR literacy rate had reached 81.2 percent. Since then, literacy efforts have been concentrated in rural areas. People of non-Russian nationalities are illiterate in larger numbers. Women's education became a major priority after the revolution. Newly literate people received guidance as to what to read and how to take notes. (CML)"
+
+https://eric.ed.gov/?id=ED321045
+
 The Human Face of Russia (1984) - society and everyday life in 1980s USSR https://m.youtube.com/watch?v=Hlb-HwxUxSU
 
 Index to Perestroika: a Marxist Critique [1990]
